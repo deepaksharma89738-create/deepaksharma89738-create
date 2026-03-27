@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hii👋I'm Deepak Sharma<br>About me: I'm Currently Learning Programing Languages.
+Hii👋I'm Deepak Sharma<br>About me: I'm Currently building strong technical skills for the future.
 
 
 ## 🌐 Socials:
